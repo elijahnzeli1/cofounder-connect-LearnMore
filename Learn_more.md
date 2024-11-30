@@ -155,7 +155,7 @@ Be part of the next generation of startup formation. Whether you're a technical 
 
 ## Contact & Support
 
-- Email: [erickkaloki28@gmail.com](mailto:erickkaloki28@gmail.com)
+- Email: [cofounderconnect@gmail.com](mailto:cofounderconnect@gmail.com)
 - Twitter: [@CoFounderConnect](https://twitter.com/CoFounderConnect)
 - LinkedIn: [CoFounder Connect](https://www.linkedin.com/cofounder-connect/)
 -
